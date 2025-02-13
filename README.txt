@@ -27,4 +27,14 @@ https://freesound.org/people/phillyfan972/sounds/412160/
 3) "Editedbasketball_mixdown" by hchehabi14, licensed under Creative Commons 0
 https://freesound.org/people/hchehabi14/sounds/786013/
 
+4) "Pierce Junior High School girl's basketball team" by Pierce, licensed under fair use
+floridamemory.com/items/show/13871
+
+5)"2024 Big Ten tournament final - Caitlin Clark 2" by John McClellan, licensed under CC BY-SA 2.0.
+https://openverse.org/image/d19fa9c3-d609-4831-a595-d1e12b073212?q=caitlin+clark&p=20
+
+6)"Gatorade - Caitlin Clark" by Aika Miyake, licensed under fair use
+https://vimeo.com/1017407716
+
+
 
